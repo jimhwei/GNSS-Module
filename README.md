@@ -40,6 +40,9 @@ This was the fun part. When I got on scene of the control marker, I realized tha
 ![](IMG_3600.JPG)
 _Sometimes field work is indeed a walk in the park._
 
+![](IMG_3674.JPG)
+_Quack_
+
 I tried three different devices for this experiment. They were:
 
 1. Garmin Nuvi (Purchased ~2008)
